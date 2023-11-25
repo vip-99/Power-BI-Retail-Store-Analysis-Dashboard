@@ -26,11 +26,16 @@ KPI's are - Total Sold Units are $17.5million , Overall Sales was $8.68millionðŸ
 
 
 Conclusion :-
+
 ! Focus more on July-December month to Business.
 (Give more offer to december because of the Annual Celebrations month)
+
 ! Run Sales-Promotions,discounts or special offers in 'New York' City and Open a new Retail Store.
+
 ! Use seasonal and holiday promotions to drive traffic and sales during peak shopping times.
+
 ! Create and maintain an e-commerce website for online sales.
+
 ! Focus and put these 3 brands on the front of the store ('Coca-Cola',Dasani Water,Diet Coke)
 
 
